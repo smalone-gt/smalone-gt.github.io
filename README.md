@@ -1,1 +1,0 @@
-# smalone-gt.github.io
